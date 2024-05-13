@@ -1,3 +1,5 @@
-ChenHuifei is a good people.
+ChenHuifei is a good girl.
 
-ChenHuifei is a brave people.
+ChenHuifei is a brave gril.
+
+ChenHuifei is a lucky gril.
